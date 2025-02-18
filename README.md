@@ -1,4 +1,4 @@
-👋 ##¡Hola! Soy Jair Guerrero
+## ¡Hola! Soy Jair Guerrero 👋
 
 💻 Sobre mí
 
