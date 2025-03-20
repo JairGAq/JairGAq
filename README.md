@@ -26,10 +26,10 @@ Colaborar en proyectos open-source y contribuir a la comunidad tech.
 
 📫 Conéctate conmigo
 
-💼 LinkedIn
+💼 LinkedIn: https://www.linkedin.com/in/jair-guerreroaq/
 
-📧 Email: tuemail@ejemplo.com
+📧 Email: jair.guerreroaqu@gmail.com
 
-🌐 Portafolio
+🌐 Portafolio: 
 
 ¡Gracias por visitar mi perfil! 😊
